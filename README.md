@@ -1,1 +1,1 @@
-# hello-world.
+# hello-world. My name is Lea M. Calixtro I was born on March 30 2000. Im 21 years old. I'm currenty residing at Barangay Namatucan Agno Pangasinan. I'm 3rd year college taking of Bachelor o Information Technology  at Urdaneta City Universit. In may leisure time I love lestining music because letining music is undressing may mood and relacksing to may mind. 
